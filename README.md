@@ -1,4 +1,4 @@
-curious in data and analytics
+Hi
 
 <!---
 tthh97/tthh97 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
